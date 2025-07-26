@@ -3,7 +3,7 @@
 1. [Alex Dukhanov](https://unsplash.com/photos/close-up-photography-of-snow-covered-green-pine-trees-RHItvgIJfgw)
 2. [Damian Markutt](https://unsplash.com/photos/landscape-photography-of-green-and-brown-mountain-7N998BynnFw)
 3. [Donald Giannatti](https://unsplash.com/photos/mountain-during-daytime-bgENbHsEsqI)
-6. [Eberhard Grossgasgeiger](https://www.pexels.com/photo/cabins-near-forest-and-mountain-covered-with-snow-1743376/)
+6. [Eberhard Grossgasteiger](https://www.pexels.com/photo/cabins-near-forest-and-mountain-covered-with-snow-1743376/)
 5. [Federico Becarri](https://unsplash.com/photos/timelapse-photo-of-vehicles-near-trees-cyg3DD6Y69A)
 6. [Garrett Parker](https://unsplash.com/photos/mountain-reflection-on-body-of-water-DlkF4-dbCOU)
 7. [Ivana Cajina](https://unsplash.com/photos/river-stream-between-rocks-during-daytime-9LwCEYH1oW4)
